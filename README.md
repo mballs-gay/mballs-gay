@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mballs-gay
 - 👀 I like girls i swear
 - 🌱 I’m dieing
-- 💞️ I’m single
+- 💞️ I’m taken 
 - 📫 dont talk to me
 - 😄 Pronouns:he/him
 - ⚡ Fun fact:i have a bomb
